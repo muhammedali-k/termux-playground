@@ -13,5 +13,5 @@ Things to do this month :
     - English Module I - IV<br>
 
 ## 14.03.2026
-Did all I things I planned for today. Still feeling empty.<br>
-Worried about **RA** Exam. *Product Of Procrastination*.
+Did all I things I planned for today. Everything will be alright.<br>
+Preparation for **RA** Exam is the next task .<br> *Product Of Procrastination*.
