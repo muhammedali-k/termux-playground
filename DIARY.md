@@ -10,4 +10,8 @@ Things to do this month :
     - Linear Algebra
 - College
     - Major Module I - IV
-    - English Module I - IV
+    - English Module I - IV<br>
+
+## 14.03.2026
+Did all I things I planned for today. Still feeling empty.<br>
+Worried about **RA** Exam. *Product Of Procrastination*.
