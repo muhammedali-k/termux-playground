@@ -12,6 +12,9 @@ Things to do this month :
     - Major Module I - IV
     - English Module I - IV<br>
 
-## 14.03.2026
+## 14.04.2026
 Did all I things I planned for today. Everything will be alright.<br>
-Preparation for **RA** Exam is the next task .<br> *Product Of Procrastination*.
+Preparation for **RA** Exam is the next task .<br> *Product Of Procrastination*.<br>
+
+## 15.04.2026
+Taught how to do addition and subtraction in my way.<br>
