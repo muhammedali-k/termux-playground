@@ -18,3 +18,6 @@ Preparation for **RA** Exam is the next task .<br> *Product Of Procrastination*.
 
 ## 15.04.2026
 Taught how to do addition and subtraction in my way.<br>
+
+## 16.04.2026
+Birthday wished on the wrong month. Washed the vehicle.<br>
